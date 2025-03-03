@@ -20,3 +20,9 @@ The notification is avaliable @ psc.ap.gov.in website officially provided by gov
 - Ap grama sachivalayam notification 2025 date
 - grama sachivalayam.ap.gov.in login
 - PSC A.P. gov in
+
+## Important NOTES: 
+
+* There are various posts avaliable for AP GRama/Ward Sachivalayam like, VRO, ANM, Engineering Assistent, Data entry Operator etc.
+* Exam is completely Opjective-based, syllabus is GENERAL STUDIES, APTITUDE, and SUBJECT KNOWLEDGE.
+* TO apply: you must be resident of Andhra Pradesh (Verified by Aadhaar)
