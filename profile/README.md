@@ -32,6 +32,8 @@ The notification is avaliable @ psc.ap.gov.in website officially provided by gov
 - grama sachivalayam.ap.gov.in login
 - PSC A.P. gov in
 
+----
+
 ## Important NOTES: 
 
 * There are various posts avaliable for AP GRama/Ward Sachivalayam like, VRO, ANM, Engineering Assistent, Data entry Operator etc.
