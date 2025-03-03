@@ -17,7 +17,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Official Website               | gramasachivalayam.ap.gov.in |
 
 
-<center><h2>Apply now </h2></center>
+> <center>Apply now</center>
 ----
 
 ## AP GRAMA SACHIVALAYAM Notificaiton Importance
