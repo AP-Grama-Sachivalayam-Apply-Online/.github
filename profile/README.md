@@ -13,11 +13,9 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Eligibiilty                    | 10th/12th/Graduation (Varies according post/recruitment) | 
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
 | selection Process              | Written Exam + Document Verification |
-| Application mode               | Apply Online |
+| Application mode               |[ Apply Online](https://www.dynews.net/)  |
 | Official Website               | gramasachivalayam.ap.gov.in |
 
-
-<center>Apply now</center>
 ----
 
 ## AP GRAMA SACHIVALAYAM Notificaiton Importance
