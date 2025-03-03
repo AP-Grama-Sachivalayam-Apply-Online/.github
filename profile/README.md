@@ -16,7 +16,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
 | selection Process              | Written Exam + Document Verification |
 | Application mode               |[ Apply Online](https://www.dynews.net/)  |
-| Official Website               | gramasachivalayam.ap.gov.in |
+| Official Website               | gramawardsachivalayam.ap.gov.in |
 
 ----
 
