@@ -17,7 +17,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Official Website               | gramasachivalayam.ap.gov.in |
 
 
-![applynow_R-removebg-preview](https://github.com/user-attachments/assets/2dbf64dd-c3bb-4016-88e5-6d9211245f61)(ap.gov.in)
+![applynow_R-removebg-preview](https://ap.gov.in)
 
 ----
 
