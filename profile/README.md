@@ -4,6 +4,17 @@ The government of andhrapradesh is about to release the most importaant recruitm
 
 ----
 
+| Category                       | Details |
+|--------------------------------|---------|
+| Organization                   | Ap Grama/Ward Sachivalayam - AP government body Recruitment |
+| Job Location                   | Andra Pradesh |
+| Eligibiilty                    | 10th/12th/Graduation (Varies according post/recruitment) | 
+| Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
+| selection Process              | Written Exam + Document Verification |
+| Application mode               | Apply Online |
+| Official Website               | gramasachivalayam.ap.gov.in |
+----
+
 ## AP GRAMA SACHIVALAYAM Notificaiton Importance
 
 The AP Grama Sachivalayam representes the Government OF Andhra Pradesh, this is most important initiative from gov of ap to bring government services directly to village doorsteps. This 2025 Sachivalayam notification particularly provides jobs to most of the eliglible candidates. This notification is organized by Andhra Pradesh Public Services commission. 
