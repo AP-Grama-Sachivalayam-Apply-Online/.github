@@ -6,7 +6,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 
 | Category                       | Details |
 |--------------------------------|---------|
-| Organization                   | Ap Grama/Ward Sachivalayam - AP government body Recruitment |
+| Organization                   | Ap Grama/Ward Sachivalayam - AP government body Recruitment 2025 Ward Sachivalayam: Grama |
 | Job Location                   | Andra Pradesh |
 | Eligibiilty                    | 10th/12th/Graduation (Varies according post/recruitment) | 
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
