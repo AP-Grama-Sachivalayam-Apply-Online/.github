@@ -20,10 +20,6 @@ The government of andhrapradesh is about to release the most importaant recruitm
 
 ----
 
-<p align="center"><em>![applynow_R-removebg-preview](https://github.com/user-attachments/assets/847ea8d8-7687-447a-b05f-98e54c850f14)
-</em></p>
-
-
 ## AP GRAMA SACHIVALAYAM Notificaiton Importance
 
 The AP Grama Sachivalayam representes the Government OF Andhra Pradesh, this is most important initiative from gov of ap to bring government services directly to village doorsteps. This 2025 Sachivalayam notification particularly provides jobs to most of the eliglible candidates. This notification is organized by Andhra Pradesh Public Services commission. 
