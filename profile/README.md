@@ -15,7 +15,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Eligibiilty                    | 10th/12th/Graduation (Varies according post/recruitment) | 
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
 | selection Process              | Written Exam + Document Verification |
-| Application mode               |[ Apply Online](https://vswsonline.ap.gov.in/)  |
+| Application mode               |[ Apply Online](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2Fp%2Fap-grama-sachivalayam-notification-2025.html&sa=D&sntz=1&usg=AOvVaw0ZKqKGmYS3efU7VU_1l8y1)  |
 | Official Website               | gramawardsachivalayam.ap.gov.in |
 
 ----
@@ -59,7 +59,9 @@ Yes, eligible candidates can apply for multiple posts according to their educati
 Yes, government Of Andhra pradesh allows special reservation quotas for SC, SC, OBC, and other special catetories as per the notification.
 
 ### How to prepare for AP Grama Sachivalayam Exam after applying?
-Applicants should focus on syllabus according to their applied post, please go through previous question papers, which might help to know examination pattern, and stay updated with current affairs, particularly those related to Andhra Pradesh.
+Applicants should focus on syllabus according to their applied post, please go through previous question papers, which might help to know examination pattern, and stay updated with current affairs, particularly those related to Andhra Pradesh. 
 
+**last updated: updated now on 05-04-2025 latest update
+**
 
 
