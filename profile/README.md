@@ -63,10 +63,9 @@ Yes, government Of Andhra pradesh allows special reservation quotas for SC, SC, 
 ### How to prepare for AP Grama Sachivalayam Exam after applying?
 Applicants should focus on syllabus according to their applied post, please go through previous question papers, which might help to know examination pattern, and stay updated with current affairs, particularly those related to Andhra Pradesh. 
 
-**last updated: updated now on 05-04-2025 latest update
-**
+**last updated: updated now on 20-06-2025 latest update**
 
-Here are some discount coupon codes, please have a look for more details, we are here to provide all latest updates about ap psc online. check now. and get instant access to discounts
+Ap Grama Sachivalayam jobs are now avaliable with ap.gov.in website, please follow the above provided instructions
 
 
 
