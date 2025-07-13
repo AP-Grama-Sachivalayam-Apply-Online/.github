@@ -65,7 +65,6 @@ Applicants should focus on syllabus according to their applied post, please go t
 
 **last updated: updated now on 23-06-2025 latest update**
 
-Ap Grama Sachivalayam jobs are now avaliable with ap.gov.in website, please follow the above provided instructions, and also check about https://github.com/annadata-sukhibhava > Annadata sukhibhava AP government scheme, which is completely related to government of Andhra pradesh. 
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard.
 
