@@ -63,7 +63,7 @@ Yes, government Of Andhra pradesh allows special reservation quotas for SC, SC, 
 ### How to prepare for AP Grama Sachivalayam Exam after applying?
 Applicants should focus on syllabus according to their applied post, please go through previous question papers, which might help to know examination pattern, and stay updated with current affairs, particularly those related to Andhra Pradesh. 
 
-**last updated: updated now on 23-06-2025 latest update**
+**last updated: updated now on 23-07-2025 latest update @ 3:44 ** avaliable now: 
 
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. you can also check all [tax](https://github.com/irs-tax-estimator-calculator) information from here, updated [tool](https://github.com/tax-reimbursement-calculator) which can help you to view all updates. we have also created[ tax estimator](https://github.com/tax-estimator-2025) check now
