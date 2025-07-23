@@ -66,7 +66,7 @@ Applicants should focus on syllabus according to their applied post, please go t
 **last updated: updated now on 23-07-2025 latest update @ 3:44 ** avaliable now: 
 
 
-AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. you can also check all [tax](https://github.com/irs-tax-estimator-calculator) information from here, updated [tool](https://github.com/tax-reimbursement-calculator) which can help you to view all updates. we have also created[ tax estimator](https://github.com/tax-estimator-2025) check now
+AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
 
 
