@@ -68,11 +68,6 @@ Applicants should focus on syllabus according to their applied post, please go t
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
-Also check the following: 
-more to study online from here. latest jobs/educational updates online:
-https://github.com/online-classes-for-ged
-https://github.com/ged-online-classes-free
-https://github.com/free-online-ged-programs
-https://github.com/free-ged-prep-test
+updated 11:21 > 30-08-2025: Here is another government update, about GOVT of Maharastra, about MSBTE Examination result: https://github.com/msbte-result-online
 
 
