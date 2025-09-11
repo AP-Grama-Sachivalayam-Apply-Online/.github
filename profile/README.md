@@ -15,7 +15,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Eligibiilty                    | 10th/12th/Graduation (Varies according post/recruitment) | 
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
 | selection Process              | Written Exam + Document Verification |
-| Application mode               |[ Apply Online](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2Fp%2Fap-grama-sachivalayam-notification-2025.html&sa=D&sntz=1&usg=AOvVaw0ZKqKGmYS3efU7VU_1l8y1)  |
+| Application mode               |[ Apply Online](https://en.dynews.net/ap-grama-sachivalayam-notification/)  |
 | Official Website               | gramawardsachivalayam.ap.gov.in |
 
 ----
@@ -24,7 +24,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 
 The AP Grama Sachivalayam representes the Government OF Andhra Pradesh, this is most important initiative from gov of ap to bring government services directly to village doorsteps. This 2025 Sachivalayam notification particularly provides jobs to most of the eliglible candidates. This notification is organized by Andhra Pradesh Public Services commission. 
 
-## [ APPLY NOW >>> ONLINE ](https://www.dynews.net/p/ap-grama-sachivalayam-notification-2025.html)
+## [ APPLY NOW >>> ONLINE ](https://en.dynews.net/ap-grama-sachivalayam-notification/)
 
 ----
 
@@ -68,6 +68,5 @@ Applicants should focus on syllabus according to their applied post, please go t
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
-updated 11:21 > 30-08-2025: Here is another government update, about GOVT of Maharastra, about MSBTE Examination result: https://github.com/msbte-result-online
-
+UPDATED: 11-09-2025 latest notification is added, included new features about live status on AP grama sachivalayam jobs. Check the source. 
 
