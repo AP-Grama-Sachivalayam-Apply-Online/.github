@@ -49,7 +49,7 @@ The notification is avaliable @ psc.ap.gov.in website officially provided by gov
 
 ----
 
-## FAQ['](https://s3-ap-south-1.amazonaws.com/ibomma-telugu-movies/Ibomma-Telugu-Movies.pdf)s About APGrama Sachivalayam Notification 2025 
+## FAQ['](https://s3.ap-south-1.amazonaws.com/ibomma-telugu-movies/Ibomma-Telugu-Movies.pdf)s About APGrama Sachivalayam Notification 2025 
 
 ### Is there any previous experiance required for Ap Grama sachivalayam jobs? 
 For most of the positions, previous experiance is not really required, thouch it may provide any slight advantage at selection process. The primary focus remains on education qualification and marks scored in the written examination.
