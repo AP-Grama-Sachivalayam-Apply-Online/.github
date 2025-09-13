@@ -68,5 +68,5 @@ Applicants should focus on syllabus according to their applied post, please go t
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
-UPDATED: 11-09-2025 latest notification is added, included new features about live status on AP grama sachivalayam jobs. Check the source, clearly updated.
+UPDATED: 11-09-2025 latest notification is added, included new features about live status on AP grama sachivalayam jobs. Check the source, clearly updated, please check ap.gramasachivalayam.gov.in website.
 
