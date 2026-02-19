@@ -15,7 +15,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Eligibiilty                    | 10th/12th/Graduation (Varies according post/recruitment) | 
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
 | selection Process              | Written Exam + Document Verification |
-| Application mode               |[ 🔴 APPLY NOW.!! UPDATED 2026 ](https://whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)  |
+| Application mode               |[ 🔴 APPLY NOW.!! UPDATED 2026 (VERIFIED) ](https://whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)  |
 | Official Website               | gramawardsachivalayam.ap.gov.in |
 
 ----
