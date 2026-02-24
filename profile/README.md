@@ -16,6 +16,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
 | selection Process              | Written Exam + Document Verification |
 | Application mode               |[ 🔴 APPLY NOW.!! UPDATED 2026 (VERIFIED) ](https://whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)  |
+| Apply link 2                   | [🔴 Check now ](https://github.com/Andhra-Pradesh-Government-jobs) | 
 | Official Website               | gramawardsachivalayam.ap.gov.in |
 
 ----
@@ -71,6 +72,7 @@ Applicants should focus on syllabus according to their applied post, please go t
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
+Updated: 24-02-2026 New Apply link is added for Grama Sachivalayam, Now users can Directly apply from the above source. (AP.GOV.In) Andhra pradesh government website
 Updated: 19-02-2026 New Official Whatsapp Group for Ap Gramasachivalayam Government job Updates has been launched, for students to view all latest updates.
 Updated: 30-01-2026 The Government of Andhra Pradesh, is perparing job calender regarding Gramasachivalayam and other posts, and rural development activities, We request our viewers to check the above provided sources.
 UPDATED: 11-09-2025 latest notification is added, included new features about live status on AP grama sachivalayam jobs. Check the source, clearly updated, please check ap.gramasachivalayam.gov.in website.
