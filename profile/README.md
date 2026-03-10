@@ -15,7 +15,7 @@ The government of andhrapradesh is about to release the most importaant recruitm
 | Eligibiilty                    | 10th/12th/Graduation (Varies according post/recruitment) | 
 | Age limit                      | 18 To 42 Years (Age relaxation as per rules) may vary by community |
 | selection Process              | Written Exam + Document Verification |
-| Application mode               |[ 🔴 APPLY NOW.!! UPDATED 2026 (VERIFIED) ](https://whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)  |
+| Application mode               |[ 🔴 APPLY NOW.!! UPDATED 2026 (VERIFIED) ](https://chat.whatsapp.com/L4vktDbuh3M1pg4VY4oPyW)  |
 | Apply link 2                   | [🔴 Andhra Pradesh Government Jobs ](https://github.com/Andhra-Pradesh-Government-jobs) | 
 | Official Website               | gramawardsachivalayam.ap.gov.in |
 
@@ -25,7 +25,6 @@ The government of andhrapradesh is about to release the most importaant recruitm
 
 The AP Grama Sachivalayam representes the Government OF Andhra Pradesh, this is most important initiative from gov of ap to bring government services directly to village doorsteps. This 2025 Sachivalayam notification particularly provides jobs to most of the eliglible candidates. This notification is organized by Andhra Pradesh Public Services commission. 
 
-<center>[APPLY NOW 2026](https://whatsapp.com/channel/0029VbCC4fuAu3aKQNQZHM0f)✔️ </center>
 
 ----
 
@@ -72,6 +71,7 @@ Applicants should focus on syllabus according to their applied post, please go t
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
+Updated: 10-03-2026 New Whatsapp Group Source is added for more easier communication about AP Gramasachivalayam Jobs
 Updated: 24-02-2026 New Apply link is added for Grama Sachivalayam, Now users can Directly apply from the above source. (AP.GOV.In) Andhra pradesh government website
 Updated: 19-02-2026 New Official Whatsapp Group for Ap Gramasachivalayam Government job Updates has been launched, for students to view all latest updates.
 Updated: 30-01-2026 The Government of Andhra Pradesh, is perparing job calender regarding Gramasachivalayam and other posts, and rural development activities, We request our viewers to check the above provided sources.
