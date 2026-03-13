@@ -71,10 +71,10 @@ Applicants should focus on syllabus according to their applied post, please go t
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
-Updated: 10-03-2026 New Whatsapp Group Source is added for more easier communication about AP Gramasachivalayam Jobs
-Updated: 24-02-2026 New Apply link is added for Grama Sachivalayam, Now users can Directly apply from the above source. (AP.GOV.In) Andhra pradesh government website
-Updated: 19-02-2026 New Official Whatsapp Group for Ap Gramasachivalayam Government job Updates has been launched, for students to view all latest updates.
-Updated: 30-01-2026 The Government of Andhra Pradesh, is perparing job calender regarding Gramasachivalayam and other posts, and rural development activities, We request our viewers to check the above provided sources.
-UPDATED: 11-09-2025 latest notification is added, included new features about live status on AP grama sachivalayam jobs. Check the source, clearly updated, please check ap.gramasachivalayam.gov.in website.
-UpdateD: 04-12-2025 Orders are about to be passed about "recruitment notification" already give AP DPC notification 
-Updated: 13-12-2025 this is year end update about grama sachivalayam notification, government of ap will release job notification at jan last week, staytuned for more important information. 
+* Updated: 10-03-2026 New Whatsapp Group Source is added for more easier communication about AP Gramasachivalayam Jobs
+* Updated: 24-02-2026 New Apply link is added for Grama Sachivalayam, Now users can Directly apply from the above source. (AP.GOV.In) Andhra pradesh government website
+* Updated: 19-02-2026 New Official Whatsapp Group for Ap Gramasachivalayam Government job Updates has been launched, for students to view all latest updates.
+* Updated: 30-01-2026 The Government of Andhra Pradesh, is perparing job calender regarding Gramasachivalayam and other posts, and rural development activities, We request our viewers to check the above provided sources.
+* UPDATED: 11-09-2025 latest notification is added, included new features about live status on AP grama sachivalayam jobs. Check the source, clearly updated, please check ap.gramasachivalayam.gov.in website.
+* UpdateD: 04-12-2025 Orders are about to be passed about "recruitment notification" already give AP DPC notification 
+* Updated: 13-12-2025 this is year end update about grama sachivalayam notification, government of ap will release job notification at jan last week, staytuned for more important information. 
