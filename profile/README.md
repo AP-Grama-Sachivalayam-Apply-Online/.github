@@ -49,8 +49,6 @@ The notification is avaliable @ psc.ap.gov.in website officially provided by gov
 
 ----
 
-<img width="900" height="1600" alt="image" src="https://github.com/user-attachments/assets/ae72a05b-e090-48c3-920c-f8d790e40462" />
-
 
 ## FAQ's About APGrama Sachivalayam Notification 2025 
 
@@ -66,11 +64,12 @@ Yes, government Of Andhra pradesh allows special reservation quotas for SC, SC, 
 ### How to prepare for AP Grama Sachivalayam Exam after applying?
 Applicants should focus on syllabus according to their applied post, please go through previous question papers, which might help to know examination pattern, and stay updated with current affairs, particularly those related to Andhra Pradesh. 
 
-**last updated: updated now on 23-07-2025 latest update @ 3:44** avaliable now: 
+**last updated: updated now on 29-10-2026 latest update @ 2:49** avaliable now: 
 
 
 AP Grama Grama sachivalayam and ward sachivalayam (GSWS) is now avaliable here, get easy access now: https://github.com/GSWS-Dashboard Check application status, apply for certificates access now Dashboard. updated, now you can check talliki vandanam status from here, ap grama sachivalayam scheme status online check now using this url: https://github.com/Talliki-Vandanam-Status
 
+* Updated: 29-10-2026 new AP Sachivalayam Recruitment process has been started, post notification will be released soon. Stay tuned.!!
 * Updated: 31-03-2026 Andhra Pradesh Government has decided to publish result, for 10th class students > [Check BSE AP Andhra Pradesh 10th Results 2026 date ](https://github.com/ap-10th-result-date-2026) from here. 
 * Updated: 10-03-2026 New Whatsapp Group Source is added for more easier communication about AP Gramasachivalayam Jobs
 * Updated: 24-02-2026 New Apply link is added for Grama Sachivalayam, Now users can Directly apply from the above source. (AP.GOV.In) Andhra pradesh government website
